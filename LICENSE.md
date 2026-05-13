@@ -1,4 +1,4 @@
-# 
+# ScreenFlow for macOS smart Automation: lower-thirds & scene-transitions is the best ScreenFlow for macOS automation, featuring lower-thirds and scene-transitions. Safe, efficient,
 
 
 
